@@ -14,3 +14,7 @@ Aqui estão algumas qualidades sobre mim😄
 
 - Seja único
 -  ![](https://media.tenor.com/Ahpv6isK57wAAAAM/artificial-intelligence-artificial.gif)
+
+
+
+[Romeo Santos](https://youtu.be/QFs3PIZb3js?si=n0af_8hO4_7sBQqg)
